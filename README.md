@@ -4,4 +4,4 @@
 ![1000005799](https://github.com/user-attachments/assets/86166cfc-34d8-4363-87f9-d397d579619c)
 $\color{#ac444c}{\textsf{⸺⠀★ ⠀ links ! ⠀ ⠀  ᯇ⠀ ⠀' ⠀ ⠀ taken ⠀ ⠀◟ 天 ◝}}$
 
-$\color{#dc747c}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/heathcliff)$\color{#ac444c}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#dc747c}{\textsf{awpage ⋯ }}$⠀[a](https://secretlymarkirl.atabook.org/)$\color{#b0464f}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
+$\color{#dc747c}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymarkirl)$\color{#ac444c}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#dc747c}{\textsf{awpage ⋯ }}$⠀[a](https://secretlymarkirl.atabook.org/)$\color{#b0464f}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
