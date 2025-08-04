@@ -1,7 +1,8 @@
-⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=pt-awards&base=9000&abbreviated=&label=★&color=ac444c)
+⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=pt-awards&base=9000&abbreviated=&label=★&color=FFE1a6)
 
-⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=30&pause=1000&color=fcd6c4&background=dc747c&center=true&width=435&lines=%22it+followed+me+home+cesar%22)](https://git.io/typing-svg)
-![1000005799](https://github.com/user-attachments/assets/86166cfc-34d8-4363-87f9-d397d579619c)
-$\color{#ac444c}{\textsf{⸺⠀★ ⠀ links ! ⠀ ⠀  ᯇ⠀ ⠀' ⠀ ⠀ taken ⠀ ⠀◟ 天 ◝}}$
+⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=30&pause=1000&color=FFC36A&background=FFD89D&center=true&width=435&lines=%22it+followed+me+home+cesar%22)](https://git.io/typing-svg)
+![Untitleddesign-ezgif com-crop](https://github.com/user-attachments/assets/4238ba73-a3b8-454c-9312-53de67de3c67)
 
-$\color{#dc747c}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymarkirl)$\color{#ac444c}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#dc747c}{\textsf{awpage ⋯ }}$⠀[a](https://secretlymarkirl.atabook.org/)$\color{#b0464f}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
+$\color{#FFE7AC}{\textsf{⸺⠀★ ⠀ links ! ⠀ ⠀  ᯇ⠀ ⠀' ⠀ ⠀ taken ⠀ ⠀◟ 天 ◝}}$
+
+$\color{#FFE7AC}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymarkirl)$\color{#FFE7AC}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#FFDD90}{\textsf{awpage ⋯ }}$⠀[a](https://secretlymarkirl.atabook.org/)$\color{#FFE7AC}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
