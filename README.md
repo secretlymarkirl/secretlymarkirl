@@ -13,8 +13,4 @@ $\color{#FFE7AC}{\textsf{me n twin are peak⠀⠀}}$
 
 <img width="700" height="800" alt="Capture d'écran 2025-09-05 221306" src="https://github.com/user-attachments/assets/e8c0aa5a-d675-4e51-859e-17feea2c5952" />
 
-$\color{#FFE7AC}{\textsf{HALF OF SHAME LOLLL⠀}}$
-
-<img width="409" height="257" alt="Capture d'écran 2025-09-03 175746" src="https://github.com/user-attachments/assets/4f4d2d15-ceb2-42cb-b7c4-5b71d946013c" />
-<img width="440" height="191" alt="image" src="https://github.com/user-attachments/assets/8aa19fe9-701b-4a26-8f45-7e03e02d46c0" />
 
