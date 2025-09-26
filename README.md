@@ -9,13 +9,10 @@ $\color{#FFE7AC}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymar
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ffd375&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-$\color{#FFE7AC}{\textsf{me n twin are peak⠀⠀}}$
+$\color{#FFE7AC}{\textsf{we will miss u twin⠀⠀}}$
 
-<img width="700" height="800" alt="Capture d'écran 2025-09-05 221306" src="https://github.com/user-attachments/assets/e8c0aa5a-d675-4e51-859e-17feea2c5952" />
+![Untitled12_20250925140346](https://github.com/user-attachments/assets/491414e7-9dd4-4d0a-a03e-3591aeebc301)
 
-$\color{#FFE7AC}{\textsf{wumble slop cuddle pile⠀⠀}}$
-
-<img width="257" height="185" alt="image" src="https://github.com/user-attachments/assets/3717dbf6-6034-4b3a-9853-c6665a4e40d9" />
 
 
 
