@@ -5,7 +5,7 @@
 
 $\color{#FFE7AC}{\textsf{⸺⠀★ ⠀ links ! ⠀ ⠀  ᯇ⠀ ⠀' ⠀ ⠀  ⠀ ⠀◟ 天 ◝}}$
 
-$\color{#FFE7AC}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymarkirl)$\color{#FFE7AC}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#FFDD90}{\textsf{awpage ⋯ }}$⠀[a](https://secretlymarkirl.atabook.org/)$\color{#FFE7AC}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
+$\color{#FFE7AC}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymarkirl)$\color{#FFE7AC}{\textsf{pacehey⠀⋯}}$⠀[str](https://secretlymarkirl.straw.page)$\color{#FFDD90}{\textsf{awpage ⋯ }}$⠀[a]([ttps://second.atabook.org/)$\color{#FFE7AC}{\textsf{tabook: ⠀ 𖹭 ⠀ˊ  '}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ffd375&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
