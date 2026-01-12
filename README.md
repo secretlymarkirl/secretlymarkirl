@@ -9,10 +9,7 @@ $\color{#FFE7AC}{\textsf{✧ ࿁ ˙⠀⠀}}$[s](https://spacehey.com/secretlymar
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=ffd375&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-$\color{#FFE7AC}{\textsf{we will miss u twin⠀⠀}}$
 
-![Untitled12_20250925140346](https://github.com/user-attachments/assets/491414e7-9dd4-4d0a-a03e-3591aeebc301)
-by @ZEROHORIZONS
 
 
 
